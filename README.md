@@ -1,3 +1,38 @@
+
+# BITCHAT CRASHES. FULL OF BOTS
+
+#550 
+#539 
+#550 
+#557 
+#524 
+
+# SOLUTION: 
+
+CONNECT NSEC TO USE IT
+( NO OTHER WAY ALLOWED )
+@callebtc @jackjackbits 
+
+like luxas and me @ NYM.bar
+
+![Image](https://github.com/user-attachments/assets/810944d3-234b-4627-9e96-12b1123caf80)
+
+DYOR on Nostr anon
+
+npub1pkx92m60skq9pzs90m3yqq9tvwh03xhzc0haeqqc4exjcu7l6ntsanxwks
+
+![Image](https://github.com/user-attachments/assets/202fbed0-1dce-4856-8c94-0bfe210e8d08)
+
+![Image](https://github.com/user-attachments/assets/6ef0bd67-1284-40ef-81c4-5989bc302d25)
+
+
+hint: use Nostur on iOS
+
+
+===============================================================================================================================================================================================================
+
+
+
 <img width="256" height="256" alt="icon_128x128@2x" src="https://github.com/user-attachments/assets/90133f83-b4f6-41c6-aab9-25d0859d2a47" />
 
 ## bitchat
